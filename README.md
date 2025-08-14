@@ -1,0 +1,1 @@
+<br>Step into the rich cultural tapestry of India through our curated gallery of historical monuments and sacred temples.</br><br> From ancient architectural wonders to serene places of worship, each image tells a story of heritage, devotion, and timeless artistry."</br>
